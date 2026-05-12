@@ -1,4 +1,4 @@
-
+Get the ultimate Raycast for macOS script with instant Raycast for macOS Script | cloud-sync + automated-tasks. Featuring cloud-sync and automated-tasks, it's the best choice for
 
 
 
